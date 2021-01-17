@@ -1,1 +1,0 @@
-### yoram-singer.github.io
